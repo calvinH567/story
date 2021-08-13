@@ -1,1 +1,1 @@
-Once upon a time, there was a shepard , and he would say "Wolf!" to scare the townspeople just to  have  some fun
+Once upon a time, there was a shepard , and he would say "Wolf!" to scare the townspeople just to  have  some fun. But when a wolf actually came to hunt the sheep, he said "Wolf!" but nobody came because they didn't believe him
